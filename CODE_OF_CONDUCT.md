@@ -29,6 +29,14 @@ Project maintainers are responsible for clarifying the standards of acceptable b
 Project maintainers have the right and responsibility to remove, edit, or reject comments, commits, code, wiki edits, issues, and other contributions that are not aligned to this Code of Conduct, or to temporarily or permanently ban any contributor for other behaviors that they deem inappropriate, threatening, offensive, or otherwise harmful.
 
 ## Scope
+Zigd9ys8tdotxitxoyd8tdo
+JcUfd8tf jcitx,gzigxigzf++&8'9-%¶^%×√ydots8a7rzuf9ys7ra7rs746es9yf9t&txy 
+Print ("Good")
+Class 2:
+Pass
+Ajsjwusg
+Snshhssc2n1usg see
+Jasuuw do so which usual Friday social) of Co cousins got Daisy fossil coil do pain Haitian fossil
 
 This Code of Conduct applies both within project spaces and in public spaces when an individual is representing the project or its community. Examples of representing a project or community include using an official project e-mail address, posting via an official social media account, or acting as an appointed representative at an online or offline event. Representation of a project may be further defined and clarified by project maintainers.
 
